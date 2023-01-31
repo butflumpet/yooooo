@@ -1364,6 +1364,4 @@ I'm sorry. I'm sorry, everyone. Can we stop here?
 I'm not making a major life decision during a production number!
 All right. Take ten, everybody. Wrap it up, guys.
 I had virtually no rehearsal for that.
-Load earlier comments...
-justabluemouse commented May 27, 2021
-Hate it
+
